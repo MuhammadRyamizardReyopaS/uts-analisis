@@ -10,6 +10,6 @@ Link youtube video pertemuan kuliah
 2. A
 3. A
 
-`````````````
-Tugas
-`````````````
+````````````
+##Tugas
+https://drive.google.com/file/d/137f_y2lHJhAIp4ETFI7OnSsy8iSbHecQ/view?usp=sharing
