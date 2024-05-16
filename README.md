@@ -6,9 +6,9 @@ Kelas : TI 22 A2
 
 
 Link youtube video pertemuan kuliah
-1.
-2.
-3.
+1. A
+2. A
+3. A
 
 `````````````
 Tugas
